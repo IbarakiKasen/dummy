@@ -1,3 +1,5 @@
+* http://www.bilibili.com/blackboard/activity-HyjViGI8x.html
+
 * http://www.bilibili.com/video/av6400477/
 
 * http://www.bilibili.com/video/av6471269/
