@@ -10,4 +10,4 @@
 
 # WTF
 
-* https://github.com/InubashiriMomizi?tab=following
+* [https://github.com/InubashiriMomizi?tab=following](https://github.com/GokawaHaruki?tab=following)
